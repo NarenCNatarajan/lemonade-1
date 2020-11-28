@@ -1,0 +1,2 @@
+lemonade
+lemonade is a simple drink which you can make at your house to quench your thirst in the hot summer days. It can be made with salt or sugar. It was made first known as qatarmizat and was first originated in the 13th and 14th century in Egypt. This drink is still being consumed by people after eating the main course or as an energy drink.
